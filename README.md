@@ -1,2 +1,1 @@
-# Passakorn-P
-# Passakorn-P
+Assistant Professor at College of Arts, Media and Technology, Chiang Mai University
